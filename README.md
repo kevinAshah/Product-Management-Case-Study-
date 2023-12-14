@@ -1,1 +1,1 @@
-# Product-Management-Case-Study-
+# Product-Management-Case-Study
